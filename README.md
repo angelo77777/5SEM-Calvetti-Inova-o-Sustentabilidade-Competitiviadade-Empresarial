@@ -1,1 +1,1 @@
-# 5SEM-Calvetti-Inova-o-Sustentabilidade-Competitiviadade-Empresarial
+# 5SEM-Calvetti-Inovação-Sustentabilidade-Competitiviadade-Empresarial
